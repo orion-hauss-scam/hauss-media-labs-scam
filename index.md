@@ -1,4 +1,6 @@
 
+![https://imgur.com/a/BHeSn7L](https://i.imgur.com/hpBNQVe.png?1)
+
 ## Hauss Media Labs is a scam
 
 This is a scam. It is not a high end speaker brand. It is a Chinese knockoff. Worthless $0
@@ -30,7 +32,6 @@ This is called the "white van" scam. You can read more about how scammers are do
 
 They talk a lot to distract you from your senses and pretend to be your friend. They act like they are doing you a favor -- they are trying to cheat you!
 
-![https://imgur.com/a/BHeSn7L](https://i.imgur.com/hpBNQVe.png?1)
 [https://imgur.com/a/BHeSn7L](https://imgur.com/a/BHeSn7L)
 
 ```
