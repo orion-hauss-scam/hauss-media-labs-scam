@@ -38,7 +38,7 @@ They talk a lot to distract you from your senses and pretend to be your friend. 
 
 
 
-Here is a list of some other knock off brands that these white van scammers will try to sell you:
+### Here is a list of some other knock off brands that these white van scammers will try to sell you:
 
 Acoustic Response Series 707
 Acoustic Image 3311 / 3312
